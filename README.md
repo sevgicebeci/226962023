@@ -4,4 +4,4 @@
 Proje acıklamsı 
 
 
-Öğrenci adı soyadı numnarası ve proje adı yazılacak
+filiz konançoğlu 216923019  Sevgi CEBECİ 226962026
